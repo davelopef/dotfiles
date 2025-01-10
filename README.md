@@ -1,1 +1,1 @@
-Just my dot for kde, nothing special 
+Just my dots for kde, nothing special 
